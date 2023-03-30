@@ -1,6 +1,5 @@
 # fork_lesson
 
-=======
 cazzo in culo non fa figli, ma fa male se lo pigli
 
 Se ni’ mondo esistesse un po’ di bene
