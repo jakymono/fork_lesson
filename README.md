@@ -1,4 +1,5 @@
 # fork_lesson
+cazzo in culo non fa figli, ma fa male se lo pigli
 Se ni’ mondo esistesse un po’ di bene
 e ognun si considerasse suo fratello,
 ci sarebbe meno pensieri e meno pene
